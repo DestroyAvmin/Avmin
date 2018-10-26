@@ -1,0 +1,2 @@
+# Avmin
+Kaz
